@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @natjsc
+- 👀 I’m interested in coding!
+- 🌱 I’m currently learning Spanish.
+- 💞️ I’m looking to collaborate on Roblox Studio
+- 📫 How to reach me Discord- natjsc
+- 😄 Pronouns: him
